@@ -1,0 +1,1 @@
+# iptv-abonnement-schweiz-config
